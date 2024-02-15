@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+#
+~*原神，启动！*~
+#
+~*Genshin Impact, Start!*~
